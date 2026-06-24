@@ -12,7 +12,7 @@ Shortly after a crisis of any sort, your liaison or point person may already be 
 
 ## Parent/Guardian Involvement
 
-Although your academic information is private via FERPA, note that in an emergency, the school **can notify your parents(s) or legal guardian(s)** about what’s happening. If possible, Student Affairs may require your parents to visit campus for an in-person meeting. You may hear in advance that parents/guardians are coming, and if they do, they may *immediately be tasked with transporting you home* should an LOA occur.
+Although your academic information is private via FERPA, note that in an emergency, the school **can notify your parent(s) or legal guardian(s)** about what’s happening. If possible, Student Affairs may require your parents to visit campus for an in-person meeting. You may hear in advance that parents/guardians are coming, and if they do, they may *immediately be tasked with transporting you home* should an LOA occur.
 
 ## What to Do Immediately After
 
