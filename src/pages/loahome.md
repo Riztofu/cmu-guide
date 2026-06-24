@@ -27,7 +27,7 @@ Note that whether you have financial aid or not, you will need to pay CMU any ow
 
 As stated earlier, **if you live on-campus**, you can schedule a pickup time with your housefellow to retrieve anything in your dorm that you might not have brought home when you left originally. Make sure that you do this **before the current semester ends**.
 
-In addition, you will have the option to cancel your housing for next semester f**or a $200 fee anytime before the day the dorms close for the current semester**. If you don’t, you will have to pay the housing fee for the next semester whether you’re enrolled or not.
+In addition, you will have the option to cancel your housing for next semester **for a $200 fee anytime before the day the dorms close for the current semester**. If you don’t, you will have to pay the housing fee for the next semester whether you’re enrolled or not.
 
 ### My suggestion?
 
